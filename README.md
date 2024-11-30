@@ -1,5 +1,5 @@
 # Chaiwat Setho 6530200606
-[GitHub](6530200606.github.io)
+[GitHub](https://github.com/6530200606)
 
 # Kasidid Yookong 6530200576
 
